@@ -2,9 +2,16 @@
 layout: post
 title:  "Camino de Santiago Day 1 - Bayonne"
 date:   2020-04-28 12:00:00 -0400
-categories: 
+categories: camino
 ---
 I left London, flew to Biarritz, then took a bus to Bayonne, my first stop on the Camino.
+
+I wrote in my journal:
+> The beginning of journeying  
+> The end of seeking  
+> A heart uncontainable, anticipating.  
+> A whisper in the wind:  
+> 	I give myself wholly to you.
 
 Paul, a good brother I met at the Men's Rite of Passage the year before, hosted me with his wife Liz in London over the weekend. He made me a hearty breakfast in the morning before I left.
 
@@ -21,13 +28,6 @@ Arriving at the doorsteps of the albergue in Bayonne (a refuge for pilgrims on t
 Walking through the town
 
 ![door of first albergue](/assets/img/camino/day_1/20190428_193850.jpg)
-
-I wrote in my journal:
-> The beginning of journeying  
-> The end of seeking  
-> A heart uncontainable, anticipating.  
-> A whisper in the wind:  
->    I give myself wholly to you.
 
 
 
