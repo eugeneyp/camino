@@ -1,6 +1,7 @@
 ---
+layout: post
 day: 1
-location: bayonne
+location: London - Biarritz - Bayonne
 walked_distance: 0
 ---
 
