@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Camino
-permalink: /about/
+permalink: /camino/
 ---
 
 Camino de Santiago
