@@ -5,4 +5,4 @@
 layout: home
 ---
 
-[Camino de Santiago 2019]({% link camino.md %})
+Follow my pilgrimage along the [Camino de Santiago 2019]({% link camino.md %})
