@@ -24,7 +24,12 @@ The hearty English breakfast that Paul made with enthusiasm:
 Arriving at the doorsteps of the albergue in Bayonne (a refuge for pilgrims on the camino):  
 ![door of first albergue](/assets/img/camino/day_1/20190428_182544.jpg){:height="600px"}
 
-Walking through the town:  
-![door of first albergue](/assets/img/camino/day_1/20190428_193850.jpg){:height="600px"} 
+Walking towards the town centre:  
+![walk through town](/assets/img/camino/day_1/20190428_193850.jpg){:height="600px"} 
 
+Evening service in the Bayonne cathedral:  
+![Bayonne cathedral](/assets/img/camino/day_1/20190428_195823.jpg){:height="600px"} 
 
+A stroll by the river as the day comes to a rest:  
+![river view 1](/assets/img/camino/day_1/20190428_205044.jpg)  
+![river view 2](/assets/img/camino/day_1/20190428_205047.jpg)
