@@ -1,5 +1,6 @@
 ---
 layout: post
+title: "Day 1: London-Biarritz-Bayonne"
 day: 1
 location: London - Biarritz - Bayonne
 walked_distance: 0
