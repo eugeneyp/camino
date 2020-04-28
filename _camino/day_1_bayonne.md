@@ -25,10 +25,6 @@ Arriving at the doorsteps of the albergue in Bayonne (a refuge for pilgrims on t
 ![door of first albergue](/assets/img/camino/day_1/20190428_182544.jpg){:height="600px"}
 
 Walking through the town:  
-![door of first albergue](/assets/img/camino/day_1/20190428_193850.jpg){:height="600px"}  
-
-
-
-
+![door of first albergue](/assets/img/camino/day_1/20190428_193850.jpg){:height="600px"} 
 
 
