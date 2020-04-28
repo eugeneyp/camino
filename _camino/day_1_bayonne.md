@@ -32,4 +32,3 @@ Evening service in the Bayonne cathedral:
 
 A stroll by the river as the day comes to a rest:  
 ![river view 1](/assets/img/camino/day_1/20190428_205044.jpg)  
-![river view 2](/assets/img/camino/day_1/20190428_205047.jpg)
