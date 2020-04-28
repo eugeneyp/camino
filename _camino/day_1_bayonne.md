@@ -5,10 +5,11 @@ day: 1
 location: London - Biarritz - Bayonne
 walked_distance: 0
 ---
+April 28, 2019
 
 I left London, flew to Biarritz, then took a bus to Bayonne, my first stop on the Camino.
 
-I wrote in my journal:
+In my journal, I wrote: 
 > The beginning of journeying  
 > The end of seeking  
 > A heart uncontainable, anticipating.  
