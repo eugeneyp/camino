@@ -5,4 +5,4 @@
 layout: home
 ---
 
-[Camino de Santiago 2019](% link camino.md)
+[Camino de Santiago 2019]({% link camino.md %})
