@@ -1,6 +1,6 @@
 ---
 day: 1
-destination: bayonne
+location: bayonne
 walked_distance: 0
 ---
 
