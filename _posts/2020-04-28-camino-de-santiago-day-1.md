@@ -2,7 +2,7 @@
 layout: post
 title:  "Camino de Santiago Day 1 - Bayonne"
 date:   2020-04-28 12:00:00 -0400
-categories: camino
+tags: camino
 ---
 I left London, flew to Biarritz, then took a bus to Bayonne, my first stop on the Camino.
 
