@@ -9,6 +9,6 @@ April 2019
 
 {% for camino_day in site.camino %}
   <a href="{{ camino_day.url }}">
-    Day {{ camino_day.day }}: {{ camino_day.location }}
+    {{ camino_day.title }}
   </a>
 {% endfor %}
