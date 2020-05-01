@@ -11,7 +11,7 @@ I crossed up and over the Pyrenes from France into Spain. The sky was crispy blu
 
 The temperature and vegetation varied a lot at different altitudes. Snow banks can be found in some higher parts. The day was clear and warm when I started, but it got very cold and windy at the top. I almost did not dress enough layers. We were lucky that day. The weather changes rapidly on the top. Some whom crossed one day later had to call for an emergency vehicle because it was too windy and cold with hail coming down. 
 
-I walked in good companionship with Barbara, a delightful older woman from California, whom I exchanged many life stories with; and Valerie, a young fast-talking Deloitte consultant from Montreal.
+I walked in good companionship with Barbara, a delightful older woman from California, whom I exchanged many life stories with; and Valerie, aw young fast-talking Deloitte consultant from Montreal.
 
 From my journal:
 
