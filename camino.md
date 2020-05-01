@@ -4,8 +4,7 @@ title: Camino
 permalink: /camino/
 ---
 
-Camino de Santiago
-April 2019
+In the spring of 2019, I walked the Camino de Santiago, across Spain in 40 days and over 800km. 
 
 {% for camino_day in site.camino %}
   <a href="{{ camino_day.url }}">
