@@ -13,7 +13,7 @@ Then I set off, up the pyrenes mountain, a steep 3 hour climb to Orisson, my des
 
 The scenery of the climb was amazing. I did not come on the pilgrimate for the scenery. I came to honour my heart connection with God. I wanted to walk myself into a different reality. But the scenery, on not just for this first day, but on the whole Camino was stunning beyond what I expected. 
 
-On this first day at the climb and at the albergue, I met many whom I would meet over and over again along the whole Camino: Jackie, Pattie, and Tom from Australia; Michelle and her daughter Elizabeth from Tasmania; Barbara from California; Matt from Australia; Michael from England; an old Swedish couple whom helped me find accommodation few days later when I had no options; Valerie from Montreal; Dave from Winnipeg; Alan from Atlanta. A year later, their names and faces still remain fresh.  
+On this first day at the climb and at the albergue, I met many whom I would meet over and over again along the whole Camino: Jacki, Patti, and John from Australia; Michelle and her daughter Elizabeth from Tasmania; Barbara from California; Matt from Australia; Michael from England; an old Swedish couple whom helped me find accommodation few days later when I had no options; Valerie from Montreal; Dave from Winnipeg; Alan from Atlanta. A year later, their names and faces still remain fresh.  
 
 When I reached the Albergue just before 1pm, I bought myself a soup and sandwich. I rested my legs and enjoyed the view out on the deck, looking down the mountain. Then I settled into the routine of having so much time: reading, resting, washing, laundry. 
 

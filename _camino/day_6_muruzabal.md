@@ -1,0 +1,41 @@
+---
+layout: post
+title: "Day 6: El Perdon - Muruzabal"
+walked_distance: 19.5
+---
+May 3, 2019
+
+I woke up feeling sick. There was a slight fever developing over night. And it was raining and cold outside. I wasn't sure whether to go or to rest for a day. In the end, I wore everything I had to stay warm, put on my rain gear, and made a go for it, leaving late at 9:45am.
+
+As I walked, my legs felt surprisingly strong, and my body was adapting to the weight of the pack.
+
+> The way transforms me. As long as there is ground beneath my feet, there is a way.
+
+I bumped into Mike and Ann, whom I had dinner with last night. They also left late. Walking with company gave me more support and energy.
+
+We made the climb up El Perdon. It was cold and windy with intermittent rain. But the vigor of the walk gave me heat and warmth.
+
+On top of El Perdon, we learned that a pilgrim died just couple hours earlier while on the climb. Might have been a heart attack. It is not an easy journey. Many push themselves harder than they should. 
+
+Not sure how far I would go when I left in the morning, I ended up walking 19.5 km and found an albergue to rest in Muruzabal.
+
+*In my rain gear, walking in intermittent rains. My face looked pale.*  
+![walking in rain](https://lh3.googleusercontent.com/Kyr-0GWJC1NlwjQuKofhKTKiAz3S6GpukssXyhNR7xWOKBl_sOqgZwEgYawnpSPaZO3BmDkK-wW60v0e-VXt4kft06YZh3EzYJqTIz4J0fTKJLKPADKLV1q7Twb8zm9wziTMrq_JSlnM3Dyl6Ps0u6JYsrNCz3hPtZ2iOkcpm-mutIuFUcVAiR0tXoeLSMiW_K2NpnDEgo_dLoM4m9tCZFCJf9bqg3qir_--6JnQEGcNl0RpQa84fd4hPMl1ntPwNC2VPg40NDliAIgghg85-I0EnIF-QMXH7EEDTVkPgb22hdcrvwbIpYbs-wv4UH7ARDx5-xMrhQr1V8rF52Kf-hkSM6W7eclvbkvKChDwqMhn0AaGNy_exazCvkxeLnxPwL7qh0Q8wZ-snIIBy7reREXzApLcwaWqVXoGbF8VXO2FGQnOzTQR6GviDGlo6Q8neYQupTImxm5VuYJvpg3AxAnDJaa4BX2GTQ3gDpl4Nl3qzZc9MQ2busZsr6MyplzPF6gasHI8EDU_2VWByJUdq_FVDKSMYAFN9xIr6RWPdMcgc-KE9bvW60V0Vy1Rh7jBOGQlea-L0E44tR64fgFr4C7mVPZG_RnY8MAeoI0hAbwMD6W_qH4NzB0DPeRbBFXOcMJoqTlrl0oOaObxqSs8dHsS3ZKkSCJ8B679_TEurRxmpDUdg2q4t6G_2l8WLtF-y8bVSht8IC5E5w9PYfPFbQtY3Mil8QdZRuR3vEkLdkyPwmV5hBXTTFk=w1840-h1036-no)
+
+*With Mike and Ann on top of El Perdon, monuments to pilgrims*  
+![on top of el perdon](https://lh3.googleusercontent.com/5V6mva-m2kMSkgDJtt3V_p-N77DBMfqhINXRokgwJ7oUm2y8bjnvrnSWxsFgZ0Eo7n7jowQcQmoAAZOxqL9FlYJp4MYKMJcN5P6EQlCDu5JVsYHPsG5rn3UGO-8VzaVwBRp3r_iXaNiWjecf6GrP7_HeDNKWbBY3IGSEv3PK0AQs_H_-FAU164CsBZ4ef1BTYUFecYpTWdPM3xPjpWCTkEOWhclgA0Lz8nFf1bHfmRxYC9CA6QhpQv1SOoTcrVio40TYjPXrtgMeuE7kEjYiRAyR_LZR9pt2IXrkxDeerHVCM-wwVIaqUA4YOHSzbT2ZbTf_60HuusmpjWi4Ig_N1dP94LxliqBtxFMXKKk-A1b9rmTbjtSA131adAb41g7NljA-9C0Y4O8hhbDAFUyTCSf1FyW5mX4u_1wMT6eIHc3lvkU1Xi3_50M6t7UtC8vatQawW76etZb76BCaoSedn_uuGQfK9ofR2rUSH61V2fMWrHerGgIUO8yj8dP3DgeOUhiTkO5an1GxU9SrEvF_SVHUuVfih5gBy14AjjfnW_bf68mjPIS2_b0rHbcqW3H7SZ4hRrZOqEUCg5BihMAFauMzmSvTqgmj9mMCEntp5FWsS_4vN1H3ew3OsWKm-qYTztlL6eeWgB6flgDz7kh05CRzZRBrRnSctpEIp07YtORIA64StluD_jTP8R37VK2WdxT0aMgHAGIyUW_Zp76dTWMNsFIwoQpaJnVj1XJ0-PkfoMK_iQQj_tg=w1840-h1036-no)
+
+*Seeing the wind farms while climbing El Perdon*  
+![wind farm](https://lh3.googleusercontent.com/lJwe6P0Id-2_A9ixQxqhgPQzSvHRUu-SkUn-Iqji5PSa9cb4ax7lgJ6CxN_dtdCgaeJYehz_AzPZimyky8KYyUvPnbOx5hZc62mI_vFAfqrkDOZecqT8fdbtxS5HHlFZHotHENaTQpGxlK-7IQx_xFYdbK9byhkhsYTVTkyf32PwlCdQyhj00djzJVe6jKYG4susLsmot4L7Qvi2Vz7lF-RKlzGrQasbmJ6ricHoEc79vLUeq2rO1QcylgmoLaU-RU10dgI6HbBcQtGIFRNHqcBfr8DNWojIQaJzFAHpOVciP7jq7HdTwbWIox5RYTYSemVR9INuTovZ3S08fMSZ_5tqOHo4Kdm6CnRZSzdLbayht4FAIR79kMRLFpEoNKwSiJDsepnDf4oHWGOdeLiZLbjq9bUNlawAHxrRAg6vibKKcwiiDlrnfhbmznBP_0kHbP3wEqclfwrgoUGIEkDw9TRuc5ATgszYuxzpz4CIS0GCbBMbD0CB6zHzKFFjx847PWyiPB203L_bFM2wDRBx2fmjlWvOU2LEHRP4iyiJO_03X3UDFMYioI3s1oqcZZ2eSej_BX7O57gdhA38aWr7LtGfExdrGxYdSfSIbH5OM-zupCWTjBJc_p1DZKfJ93McdOwGFJQNi9Omxx2eUbjCN7FCm8cAkQjZwCXJcJyXTMwdqWmSemQ9GCB0qJilqWkwh8haq8jO6EsyZQ-eJJ75yRZjMK2cceDMC_NmPQioTw2uo42fq3hU3z8=w614-h345-no)
+
+*Artsy rock designs*  
+![rock designs](https://lh3.googleusercontent.com/przQHFuYqJCtkPhoF-olR5aNn2jEf_8cJy0-CSRywEcA_bJ2zpMDfgQTliPmPU1ps0nsBUVb03U3fTUnX9a4JCWjYnZrX2tNmzjzlmxQejOzCipvd1mGFtsgh62l7y8OnTYhKWV49JYok5vIIzRyXZY7vLJvJBX46XkfLvPL0BVPBsrPAeLJudd0Nc1GjtpgzPckaSJwStQcYL9MEk97elOtpddYn5cIHwv1w8adG8cO5n1uh4UKHKClWTlehkDYT1ZhAKRRRs87KjSAuLP9u-DE1VxFtSGPtbkZ10AXq-xP-paJS8BZlXGRSgo1ekAvAIm9WrcgbTLKqXSeP94uJakf77UkYyqJ8xRnW2JDPmaupxxDNnCp7Z09eUcmhwGF1EU6_Vc7TrYp33jL68lWbvi_LDH7KvVqod_KSzB6ZU_98tjcN2YbM-DG331N-H2j4HM4VjmfW-F9ajwtwY_tLxJQYmBnthPx-SklQWckFXskVBiVvUykF9lrJ9b0N3hO0PHrV98n-X0HZ6FskQ3QMRG06__NLdvVbAxiE7N1YnzrAe5RC53HI657f-jHGgjDEwHl9Hi9LPdqxKcl5kYVUwOqtzQUYrtjzpc0yq6JyqJ225Bh9GkOCLC02dWKL4EwyAqkNqUtTO_1Z8FIqM096mX-28K9SQAZ7thu2_sPGKes1Cx2ZOgFB4ax2TiOxsgWJtaiITF7Yvr8q1j-IrMdtTy9ThF81OOD6TK0DpHlFltgxNlPNkg5cFo=w1840-h1036-no)
+
+*Dinner at albergue. More rested.*  
+![dinner at albergue](https://lh3.googleusercontent.com/4IlmZ1UF8Q7-AnzGCfqecWeeob0OBNgDzieoyMa5PVSqk7fYrcUQ-vXs71bltSHyGYfnyfvaIXvKpS-C4q55m7dFlqVKGB7Yq4Cf-DNbu1bgjEEooscsoNPE5te8MxhT5HefsLuaolWu9ekALdwVfGaz1-hTDdPZbMv8jTfFYsRM6MAa9EFkn3s6HSmzxqeLxatxZL8RzE6jRdCuGjXu0DhWoLe0Klvj2kXR2SNtMAWEeDhw0fXvNifng2hkThkt-s_f8bs922Pqk0IyF4r_KHOzkVVEqBUd5eGdncCu4elOFDcCEcxZNTThA6JnqgX6Dk_4Yk6C4rr3N8OJ-0St3K2dPo06X9dxkzjRbutO7CALWseSWCGwgF3m7uJAALG9aqxKfFWqc-Sfgr3xPsRr4w13WrbwJEyb0YTGFbXvptU0ZYq9u99r93loOo1s8Wrfxek7V_w9bChDJIDp6vqEdLxBlPRh0D3-C-nySbr1jVncxSJffPnJCWPt1-QiaLFPCL3DQc4pP8h9UgE2cGtmLIdC4xCmMirACq4wBxR3vnrIh49K6NCfldQpMYHf3CrwzrI4Bwc73wMH-7qXuEb-2L8qEEoqOxT3ZZm8WIKeCe4ZBNHiCgXWO0jItkW3kUEB2GxzMQnqDNa0Ymcfdjg5wqW3qPz5uOwkdMUKOAaV4hpSfHwH7uvpo0JarENuZkA_Aa1KTl1Syo5GdFueD_IO5g4p1A2lN-JILO8wXt9IGUQ5F78gl2Y9uns=w1840-h1036-no)
+
+[**See more photos from that day**](https://photos.app.goo.gl/f4Sse8TCBEHkJjmi6)
+
+---
+
+[Back to the main Camino page]({% link camino.md %})

@@ -5,7 +5,7 @@ walked_distance: 20.3
 ---
 May 2, 2019
 
-My body surprised me. Though I felt dead tired the day before, I felt fresh and with renewed energy for the new day.
+The body surprised me. Though I felt dead tired the day before, I felt fresh and with renewed energy for the new day.
 
 A taxis from the hotel dropped us back to Zubiri, where we continued the pilgrimage to Pamplona, one of the largest cities on the Camino. Along the way, I met Monica and Victor, a couple from Oxford, and Jorge and Waika, a couple from Puerto Rico. 
 
