@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 5: Pamplona"
+title: "Day 4: Pamplona"
 walked_distance: 20.3
 ---
 May 2, 2019

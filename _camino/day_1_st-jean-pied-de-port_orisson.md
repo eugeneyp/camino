@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 2: St Jean Pied de Port - Orisson"
+title: "Day 1: St Jean Pied de Port - Orisson"
 walked_distance: 7.7
 ---
 April 29, 2019

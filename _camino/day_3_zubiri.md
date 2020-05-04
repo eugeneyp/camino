@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 4: Zubiri"
+title: "Day 3: Zubiri"
 walked_distance: 21.5
 ---
 May 1, 2019
