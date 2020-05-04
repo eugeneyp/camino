@@ -7,7 +7,7 @@ date_camino: May 4, 2019
 
 A beautiful and peaceful stretch of walk today, walking alongside green fields and olive tree gardens. My body was adapting and getting stronger. 
 
-Since Zubiri, I have been choosing smaller towns to stay, hoping to avoid the crowds, to have a better chance of finding a bed. On this particular night, I was able to enjoy the luxury of having a whole private room to myself. 
+Since Zubiri, I had been choosing smaller towns to stay, hoping to avoid the crowds to have a better chance of finding a bed. This night, I enjoyed the luxury of having a whole private room to myself.
 
 At dinner, I met my first Canadians on the journey, Lauren and her son Luca.
 
