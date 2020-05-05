@@ -9,11 +9,11 @@ Enjoyed the walk with Laura from England this morning. It was a sunny day, and I
 
 After saying bye to Laura at where she decided to rest for the day, I continued on to Los Arcos. There was a 12km stretch with no towns, no service, no water fountain, and no shade. But I was feeling so good, I powered through it. 
 
-While taking a break on the side of the path, I saw Barbara walk by. What a delightly surprise! We walked together on day 2 while crossing the pyrenes, but I had not seen her since. Even though it has been less than a week, it felt like we had a whole lifetime of experiences to share and catch up on.
+While taking a break on the side of the path, I saw Barbara walk by. What a delightly surprise! We walked together on day 2 while crossing the pyrenes, but I had not seen her since. Even though it had been less than a week, it felt like we had a whole lifetime of experiences to share and catch up on.
 
 Los Arcos was a big meeting place -- I got to see Jacki, Patti, and John again; and also Mike and Ann. Over dinner, I enjoyed a conversation with Franzi from Germany.
 
-That day, I felt buoyant and optimistic about everything on the Camino. I was making friends. I had settled into the daily routines and the food options. My body was growing stronger. Having stripped down my whole life into the essentials, the Camino was my life now. I looked forward to what was still a long journey ahead.
+That day, I felt buoyant about everything on the Camino. I had settled into the routine: the early risings, the communal bunk beds, the unreliable showers, the hand-washing of laundry, the same food options. Despite all, my body was growing stronger and I was making friends. My life was stripped into its essentials, and the Camino was my life now. A long journey still awaited ahead, and I looked forward to it with optimism.
 
 *A vigorous walk beautiful sunny morning*  
 ![sunny morning](https://lh3.googleusercontent.com/b1TNImRCUnMPOuxVu-iJXu-_1bBmSXpX_a5mIu65tLyY34-7pXR_H6adypFxWXZE6wXySZlaBwZG_GjY-TBdl8xzYK9zQQZ8ilVxlD08sDimx2U_u3SleG-25HJCsb2udUsMnTGqx4juhQYnKUBJRJMjTWg7D1sW9wofsc-ALLpm6IouxMyUiB4JZYvUpiTG_tqJ5h6lMUFCEx20UBjfQW9Bg_W569FMeGw1wbsVcCibRoZ656iAE4HTe4C0ua8xjUAC4jxmsiZfh_ShNdsxPB2Rc_v_vIXAj7rPlunU0_3NHfMQnqgKYcKEtS2kKDIL77EgdjkmITsjXQq7oRnLH8LCgyCZhwRwI9NV0jZpbM1Db_qCMq9b5VQlnioNH4BSbmJmEU4GOYNWS8iFyKo758tpKpjMH5SzZL8mxogJsV_qZ_Dy8NsAux-VMb7OreF7zM6e9_VIxma1PrKbmTeOu1GT37VORyJRJ_ToyhIHc2v2ER-dmidBl_qxOHh136YrbdnosAcANs9vWyU4CXyyV_jrN2J0aaNOWCP_my6S0s7sqpXmaMirrBWJAt-sPrNVHaXXiIfdwrk7X2knG8weu2-RBxk3DrWxDMP5BnNRZ-f9wV1bJYlIz9FVyPnYKNpLoWe2cJBhwicLwVU-FD8i7XtdO2odEZK_9zTDtrOR56CUUAIJ-CDkCpCGkTL_7XKr8yI70sUOer4wDhRzdUz4ps4fYo4us9M7FBm-ar4Lm5RGLOE2LSu0LcE=w1840-h1036-no)
