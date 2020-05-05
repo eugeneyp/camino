@@ -15,7 +15,7 @@ Los Arcos was a big meeting place -- I got to see Jacki, Patti, and John again; 
 
 That day, I felt buoyant about everything on the Camino. My life was stripped into its essentials, and the Camino was my life now: the early risings, the communal bunk beds, the unreliable showers, the hand-washing of laundry, the same food options. Despite all, my body was growing stronger and I was making friends.  A long journey still awaited ahead, and I looked forward to it with optimism.
 
-*A vigorous walk beautiful sunny morning*  
+*A vigorous walk on a beautiful sunny morning*  
 ![sunny morning](https://lh3.googleusercontent.com/b1TNImRCUnMPOuxVu-iJXu-_1bBmSXpX_a5mIu65tLyY34-7pXR_H6adypFxWXZE6wXySZlaBwZG_GjY-TBdl8xzYK9zQQZ8ilVxlD08sDimx2U_u3SleG-25HJCsb2udUsMnTGqx4juhQYnKUBJRJMjTWg7D1sW9wofsc-ALLpm6IouxMyUiB4JZYvUpiTG_tqJ5h6lMUFCEx20UBjfQW9Bg_W569FMeGw1wbsVcCibRoZ656iAE4HTe4C0ua8xjUAC4jxmsiZfh_ShNdsxPB2Rc_v_vIXAj7rPlunU0_3NHfMQnqgKYcKEtS2kKDIL77EgdjkmITsjXQq7oRnLH8LCgyCZhwRwI9NV0jZpbM1Db_qCMq9b5VQlnioNH4BSbmJmEU4GOYNWS8iFyKo758tpKpjMH5SzZL8mxogJsV_qZ_Dy8NsAux-VMb7OreF7zM6e9_VIxma1PrKbmTeOu1GT37VORyJRJ_ToyhIHc2v2ER-dmidBl_qxOHh136YrbdnosAcANs9vWyU4CXyyV_jrN2J0aaNOWCP_my6S0s7sqpXmaMirrBWJAt-sPrNVHaXXiIfdwrk7X2knG8weu2-RBxk3DrWxDMP5BnNRZ-f9wV1bJYlIz9FVyPnYKNpLoWe2cJBhwicLwVU-FD8i7XtdO2odEZK_9zTDtrOR56CUUAIJ-CDkCpCGkTL_7XKr8yI70sUOer4wDhRzdUz4ps4fYo4us9M7FBm-ar4Lm5RGLOE2LSu0LcE=w1840-h1036-no)
 
 *beautiful open landscape*  
