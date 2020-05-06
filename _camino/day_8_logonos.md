@@ -5,7 +5,7 @@ walked_distance: 29
 date_camino: May 6, 2019
 ---
 
-It was the longest day of walking so far – 29km. I walked quickly and confidently, and did not make any stops for the last 10km. Even though my calves hurt, and I was feeling my limit, I still felt good. I believed that my body had overcame the physical challenges of the Camino -- an immature belief, because I would come to learn -- every day was different on the Camino. 
+It was the longest day of walking so far – 29km. I walked quickly and confidently, and did not make any stops for the last 10km. Even though my calves hurt, I still felt good. I believed that my body had overcame the physical challenge of the Camino. Oh, what an immature belief, as I would come to learn -- every day was different on the Camino. 
 
 I actually remember little from the walk that day, probably because I was feeling too proud about how fast I was walking. But as you can see from the photos, the landscape was beautiful. 
 
