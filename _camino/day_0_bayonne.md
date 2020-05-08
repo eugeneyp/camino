@@ -2,6 +2,7 @@
 layout: post
 title: "Day 0: London-Biarritz-Bayonne"
 walked_distance: 0
+day: 0
 ---
 April 28, 2019
 

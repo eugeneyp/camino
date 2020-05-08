@@ -1,6 +1,7 @@
 ---
 layout: camino
 title: "Day 7: Los Arcos"
+day: 7
 walked_distance: 25
 date_camino: May 5, 2019
 ---

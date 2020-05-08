@@ -1,6 +1,7 @@
 ---
 layout: camino
 title: "Day 8: Logrono"
+day: 8
 walked_distance: 29
 date_camino: May 6, 2019
 ---

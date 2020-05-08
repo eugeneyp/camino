@@ -1,6 +1,7 @@
 ---
 layout: camino
 title: "Day 6: Puente la Reina - Villatuerta"
+day: 6
 walked_distance: 22.3
 date_camino: May 4, 2019
 ---

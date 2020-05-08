@@ -1,6 +1,7 @@
 ---
 layout: camino
 title: "Day 9: Ventosa"
+day: 9
 walked_distance: 19
 date_camino: May 7, 2019
 ---

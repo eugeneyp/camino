@@ -1,6 +1,7 @@
 ---
 layout: post
 title: "Day 5: El Perdon - Muruzabal"
+day: 5
 walked_distance: 19.5
 ---
 May 3, 2019

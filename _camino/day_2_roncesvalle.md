@@ -1,6 +1,7 @@
 ---
 layout: post
 title: "Day 2 Pyrenes - Roncesvalle"
+day: 2
 walked_distance: 18
 ---
 April 30, 2019
