@@ -12,11 +12,11 @@ When I got to the albergue, I discovered a big blister on my right foot. I had s
 
 I still didn't want to deal with the blister. I hoped that it would soften on its own. But an older Italian in my dorm took a look and said: you need to pop it. That did not sound appealing to me. But I did it. He was a veteran and packed needles made for this specific purpose. He gave me a needle and antiseptics.
 
-It felt like a rite of passage for me on the Camino -- popping my own blisters. And I had a veteran mentor showing me the way.
+It felt like a rite of passage for me on the Camino -- popping my own blisters. And I had a mentor showing me the way.
 
 At the albergue, I was reunited with Sasha and Benno, two of my favourite people on the Camino. We were together in Orisson on the very first day. We bunked right beside each other the next day at Roncesvalle. Then on the way to Zubiri, walking with them gave me the energy I needed.
 
-*I take a selfie every morning*  
+*I took a selfie every morning. Forgot the name of the German woman behind me. But I remember she said she was on the Camino to forget something.*  
 ![morning selfie](https://lh3.googleusercontent.com/tcf-mR_wb0nVdnSznv-iV4uqPl4o0wr3MWatNz5cLoURSYoWJwgBw84pd3IzMhLBJLiMbXaIhwWDc-zudLq-DLjt7fxy0Uaoja9tYltMnKq0hieawsNppw6yIgckSYfah-iwMyBfybHUiQSjmIYmWQRW8BxqU0PvPRFWKCppikf5c3mhzqx1yT5XoNPV_DfrSlwainJ3F7BPxv_vnonoL3pd4SVOhQ1bfB9ztwgvqG8siFcpWT3yMXelbcrRuYtcrpEwvI0w3nTgtiTs6cqn2FuLSRmUdbKZJqRpRia0PHHD2I1VnwQbwptQy6lsGvG8xzY_1X97bg8baeSKkw2IOT3x7SY0m3ujyBwzxIn1KEZQNsOhlZDA3GluJ4X8trsFWq8l-0SP64Bu-e0vdkmfDezmPuGm9ePYAuUX64WlqivP_Ei_Kvvb9401-YEYsbxJNS1CGGInHRz0TQgwy1TdbIiMXk8Ole4_37qn9laj-PezHCDzMbynmq2srRUfgfks9TB-e54aWtN6ODKnnieNPbqBdPoAts8Zpo3xIwfH-2UKpJIAjXkhrgDCdccw5DbB3UiHcLn27zEVBRk7c0BXPBKpIAUfcIGRGuFtEixFVWzWwXy17Xlv4utXykjnTaHzFS-eyF-sbtbW8s2qeHxBXgzdg2gvByEUDPv2rGULNqGiFzLBorxSxBeafUVvyA=w1056-h1406-no?authuser=0){:height="600px"}
 
 *Cloudy day. Benno and Sasha in front of me here.*  
