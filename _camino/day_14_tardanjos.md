@@ -2,7 +2,7 @@
 layout: camino
 title: "Day 14: Burgos - Tardanjos"
 walked_distance: 25
-date_camino: May 10, 2019
+date_camino: May 13, 2019
 day: 14
 ---
 
