@@ -2,7 +2,7 @@
 layout: camino
 title: "Day 18: Moratinos"
 walked_distance: 29.9
-date_camino: May 15, 2019
+date_camino: May 16, 2019
 day: 18
 ---
 
