@@ -1,6 +1,6 @@
 ---
 layout: camino
-title: "Day 22: Leon"
+title: "Day 22: Leon (Rest Day)"
 walked_distance: 0
 date_camino: May 20, 2019
 day: 22
@@ -14,7 +14,7 @@ The warm memory of that experience is reminding me and strenghtening me in my lo
 ![wall art of follow the long way](https://lh3.googleusercontent.com/pw/ACtC-3fMYMYeYOhjNwKWv-1ObJwXXljL0AiEV--V0QfSTLAh0t2SfpNHmw5dTD3iAzBcL3YpW7YHxJfUyjcAQO_vyQM8beueP0LscWdycIiFeuL-wSaLYp_8V7lPAO9gRpllCOadKc8B5eCn4ONSQQV33KHqaQ=w2500-h1406-no?authuser=0)
 
 *Statue of St. Francis*  
-![status of st.francis](https://lh3.googleusercontent.com/pw/ACtC-3cRDFIjxsIBYNSVtEHycQpDBpMs5Pae42vch4h8NF7I9AF_hXjhzJ2QAKNMQMdSrq3-nmPnU4e3AG0fIkHqguU6TK1KL7iZ4IBtUuNZcf0J8FORyBklcnkusPskwTretRm1dc5RaunWOLskBaTyG9Db2w=w2500-h1406-no?authuser=0)
+![statue of st.francis](https://lh3.googleusercontent.com/pw/ACtC-3cRDFIjxsIBYNSVtEHycQpDBpMs5Pae42vch4h8NF7I9AF_hXjhzJ2QAKNMQMdSrq3-nmPnU4e3AG0fIkHqguU6TK1KL7iZ4IBtUuNZcf0J8FORyBklcnkusPskwTretRm1dc5RaunWOLskBaTyG9Db2w=w2500-h1406-no?authuser=0)
 
 *My private guest suite in the monastery, with a living room, a bedroom and bathroom*  
 ![private room](https://lh3.googleusercontent.com/pw/ACtC-3eLTrV8vCH7JKlDRhZTMXqiFErc0OBQjn6RytOApo27ri2K1QRnfaluSxs0ejZSVTSjEUXFuRWX9AjvtypQhZ6xizZt0zP1RWsIn2iScKhPVEyJwHhJeOxu6JFeQ1ZZHuyQrPPwIfVpbkxk-JY4Aq09mg=w2500-h1406-no?authuser=0)
