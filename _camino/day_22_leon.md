@@ -8,6 +8,8 @@ day: 22
 
 I accepted brother Federico's invitation and moved into the Franciscan monastery as a guest for the day. He prepared a guest suite for me. I shared all the meals and prayer time with the brothers, and had further time to talk with Federico.
 
+The day before when we prayed together in the chapel, he prayed for me, for my pilgrimage, for all my dreams and projects, and that I would be in communion with nature the way St. Francis did. He held my head and face and said: God loves you, all of you, all of your history. Blessings not only to you, but all the people in your heart.
+
 The warm memory of that experience is reminding me and strenghtening me in my love and devotion for God.
 
 I wrote in my journal:
