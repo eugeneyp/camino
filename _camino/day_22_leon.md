@@ -10,6 +10,9 @@ I accepted brother Federico's invitation and moved into the Franciscan monastery
 
 The warm memory of that experience is reminding me and strenghtening me in my love and devotion for God.
 
+I wrote in my journal:
+> Federico is not just welcoming me in my small self but the Christ in me. Christ in him is sharing with the Christ in me. The love he gives he receives back because we share the life in the body of Christ.
+
 *A wall art in the albergue with the words: "**All your steps on Earth will vanish. Never look for a shortcut. Follow the long way.**"*  
 ![wall art of follow the long way](https://lh3.googleusercontent.com/pw/ACtC-3fMYMYeYOhjNwKWv-1ObJwXXljL0AiEV--V0QfSTLAh0t2SfpNHmw5dTD3iAzBcL3YpW7YHxJfUyjcAQO_vyQM8beueP0LscWdycIiFeuL-wSaLYp_8V7lPAO9gRpllCOadKc8B5eCn4ONSQQV33KHqaQ=w2500-h1406-no?authuser=0)
 
