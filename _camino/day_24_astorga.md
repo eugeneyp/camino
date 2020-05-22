@@ -15,8 +15,6 @@ In Astorga, while slowly walking through the town, I felt the intimacy that was 
 I wrote in my journal:
 > ...the opportunity to meet myself in everything. Everything is a gift to *myself*, and a gift back to *you*/to *me*. Every interaction is non-dual. No other. Just the intimacy of the interaction.
 
-
-
 *Early morning start*  
 ![early morning](https://lh3.googleusercontent.com/pw/ACtC-3cG8dWxNg96IATxpvQaV0yFmNnPz4JOLp-S1vptygit8JhIymcwVdjREBmPUhYyV-3BHx6G0IYGMjdmQbgE9y62aYx-T87vHHW2KmtiBvPDvSfoszDY2g-vMi4gnCiJWyNDBrfokTq-nS_q2wMhO3krlg=w2500-h1406-no?authuser=0)
 
