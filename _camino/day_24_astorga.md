@@ -30,13 +30,13 @@ I wrote in my journal:
 ![palace](https://lh3.googleusercontent.com/pw/ACtC-3drOi9y28vG1kk0I_z7P94KXbR51-MlFafGLEnFQpUrZdRf-tCuXVGyB3qgn8aEAoZDA6uIKg9RqvlMdcAt7Sarj0Ah0gfhPKh-tWYTj_ID8dORfc6XpwiD_bTg9SlDDfLhqUmE8m5KnQRine3VoDhZsA=w2500-h1406-no?authuser=0)
 
 *Baroque door to the cathedral*  
-![baroque door to the cathedral](https://lh3.googleusercontent.com/pw/ACtC-3fTRhwCvxnJlpOljP06gUM2Q5GHtiLr2fTYPySd4Q9sJ0SqHlf78Ap18nt6KXE4Ojb7ohTDtzYbpaDEt2ANua0pEDAD2jsbZBfxn_fNTH3TYOHR1UhFuupDo-JXR769OQZ47rkccC_zfawFuwp3LwCWOw=w792-h1406-no?authuser=0)
+![baroque door to the cathedral](https://lh3.googleusercontent.com/pw/ACtC-3fTRhwCvxnJlpOljP06gUM2Q5GHtiLr2fTYPySd4Q9sJ0SqHlf78Ap18nt6KXE4Ojb7ohTDtzYbpaDEt2ANua0pEDAD2jsbZBfxn_fNTH3TYOHR1UhFuupDo-JXR769OQZ47rkccC_zfawFuwp3LwCWOw=w792-h1406-no?authuser=0){:height="600px"}
 
 *Above the door*  
 ![above the door](https://lh3.googleusercontent.com/pw/ACtC-3dyj0BSpt-N4rU78kPflxH_vb3L3wlv7H6RkY827i4JylqYqGCM0i2-o2MMa0WgdmEzZ4J6YqM9yIuAaX-fPoZz2-ygp543szQ832_2fQIKMKRMVPUHoX2Ik4aVWI9T9neZ8ypIUUWaXW71XQx8XuLWkg=w2500-h1406-no?authuser=0)
 
 *Tour inside the cathedral and its museum of medieval arts. This painting touches me. We nourish from inside Jesus' wound*  
-![medieval art](https://lh3.googleusercontent.com/pw/ACtC-3cwJ2IKHFs7JedQdGi2h9tNFPw7ut8XY4JRmAQQAXqqfyLyx6HDmUPVLvGtUkmS4m0c-byZVau6MkGkO38o1hUXCWDy5JIokjmpgs1duG2gALj6FKgmVm6U4s6tQXyomi8y4-uIeS2LVownrwui0N8sGA=w792-h1406-no?authuser=0)
+![medieval art](https://lh3.googleusercontent.com/pw/ACtC-3cwJ2IKHFs7JedQdGi2h9tNFPw7ut8XY4JRmAQQAXqqfyLyx6HDmUPVLvGtUkmS4m0c-byZVau6MkGkO38o1hUXCWDy5JIokjmpgs1duG2gALj6FKgmVm6U4s6tQXyomi8y4-uIeS2LVownrwui0N8sGA=w792-h1406-no?authuser=0){:height="600px"}
 
 ![cathedral](https://lh3.googleusercontent.com/pw/ACtC-3dw5jA2RPvgoqq6pnQVZW6u3EsiS8qXQ42gC3xxMqh-pgF13Qb0EbbBCWSaE5jkO4ZakKNVO9rWNYinK9S9lrISa3bOLotDS4irGAfl0OuOL7SblR599-fv3FqH4kdmvepkhi2KgH1G1oghOV6LXh3Zgw=w792-h1406-no?authuser=0){:height="600px"}
 
