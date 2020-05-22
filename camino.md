@@ -11,5 +11,6 @@ In the spring of 2019, I walked the Camino de Santiago, across Spain in 40 days 
   <a href="{{ camino_day.url }}">
     {{ camino_day.title }}
   </a>
+   {{ camino_day.walked_distance }} km
 {% endfor %}
 
