@@ -10,7 +10,7 @@ An early start and a good day of walking to Astorga, a beautiful historical town
 
 I sensed that how I walk was how I move through life. The walk was a good practice on how to stay engaged and centred.
 
-In Astorga, while slowly walking through the town, I felt the intimacy that was the excited longing in my heart at the start of my pilgrimage. It was the unbounded longing to meet *you*, the beloved in everything, the non-dual manifested in the dual. 
+In Astorga, while slowly walking through the town, I felt the intimacy that my heart was excited for and longed for at the start of my pilgrimage – the longing to meet *you*, the beloved in everything, the non-dual manifested in the dual. 
 
 I wrote in my journal:
 > ...the opportunity to meet myself in everything. Everything is a gift to *myself*, and a gift back to *you*/to *me*. Every interaction is non-dual. No other. Just the intimacy of the interaction.
