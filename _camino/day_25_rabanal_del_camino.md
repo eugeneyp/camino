@@ -6,7 +6,7 @@ date_camino: May 23, 2019
 day: 25
 ---
 
-Today, I walked excitelyd to Rabanal del Camino, a little town up on a hill. From the beginning, I marked this town as a must-stop. It was the only town on the Camino with a Benedictine monastery that I knew of that welcomed guests.
+Today, I walked excitelyd to Rabanal del Camino, a little town up on a mountain. From the beginning, I marked this town as a must-stop. It was the only town on the Camino with a Benedictine monastery that I knew of that welcomed guests.
 
 For days, I emailed and called the monastery without receiving a response. So I wanted to get there to see if they were open. I had read about the Benedictines. I loved their monastic ethos, and I really wanted to experience it from the inside.
 
