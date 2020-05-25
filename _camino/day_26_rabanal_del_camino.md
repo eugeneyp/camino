@@ -23,16 +23,16 @@ I walked about the town and the nearby farm fields. I wrote:
 I felt a letting go of the way I was trying to complete the 800km Camino walk as a task, rather than really be free and paying attention. 
 > Quietly, inside of me, I hear the whisper: I want to create my own way. I wan to walk my own way.
 
-*At the evening vespers sang by the brothers. [A short video clip](https://photos.google.com/share/AF1QipMEFjUYUYXUWaDkBLtMFN4ZrRF0orRtbtBkxExhJS1kG9JxUMwB3cQ70h1YTesYwg/photo/AF1QipOIc26W14o3DtT-Wz5qAAPyELYWCDIlxUDfDA4M?key=SlNfaEhQZUlncE81T2xKdmMzS2ZSdXBMSFpYNjJn). *  
-![vespers](https://lh3.googleusercontent.com/pw/ACtC-3dC1FQ0L3EA2ZqmWfNs7sDyk6VJpgnWG_gpn2gy6BXVWvCehYeJNgf8izFXuJ10WOX01J0o3nHTkt6jJfrT1athjznBc3qRm46z45JsH7IhWl-YImTsof8-7HZebCJ6j8yYMRYFhq_m9mPs_CxVRALRAg=w792-h1406-no?authuser=0)
+*At the evening vespers sang by the brothers. [A short video clip](https://photos.google.com/share/AF1QipMEFjUYUYXUWaDkBLtMFN4ZrRF0orRtbtBkxExhJS1kG9JxUMwB3cQ70h1YTesYwg/photo/AF1QipOIc26W14o3DtT-Wz5qAAPyELYWCDIlxUDfDA4M?key=SlNfaEhQZUlncE81T2xKdmMzS2ZSdXBMSFpYNjJn).*  
+![vespers](https://lh3.googleusercontent.com/pw/ACtC-3dC1FQ0L3EA2ZqmWfNs7sDyk6VJpgnWG_gpn2gy6BXVWvCehYeJNgf8izFXuJ10WOX01J0o3nHTkt6jJfrT1athjznBc3qRm46z45JsH7IhWl-YImTsof8-7HZebCJ6j8yYMRYFhq_m9mPs_CxVRALRAg=w792-h1406-no?authuser=0){:height="600px"}
 
 *Inside the monastery guesthouse:*  
 ![monastery courtyard](https://lh3.googleusercontent.com/pw/ACtC-3e-iG7uuALEvhM70ZBAKixWbh5A-GkwqZgpAJ252Ly4DnHHk3rmcn_RK8CI7A4uuTeU-DRMCTZqVloG8Kb17KZ4oGHCVc5ASHoHo2G2ghdJ6204GZ8ar15zdrlIyh39Jg5SseHPaEO2GzG9_ZebYCmtGg=w2500-h1406-no?authuser=0)
 
-![inside monastery](https://lh3.googleusercontent.com/pw/ACtC-3f6fiSEahqW7gIWb9tUYyVKDNaJmxGHP8OrS_l8GZtp4wdOdTkq2YeLDsxr_hIjgmt-yEVsiVdeVZDJEFZIe_N8YAqQx13Z1vKs9wqhv7ajzDVPR1Rwp0PL5v6muTOu9IyaWB3gdbnsOjw9DY-imvroEA=w792-h1406-no?authuser=0)
+![inside monastery](https://lh3.googleusercontent.com/pw/ACtC-3f6fiSEahqW7gIWb9tUYyVKDNaJmxGHP8OrS_l8GZtp4wdOdTkq2YeLDsxr_hIjgmt-yEVsiVdeVZDJEFZIe_N8YAqQx13Z1vKs9wqhv7ajzDVPR1Rwp0PL5v6muTOu9IyaWB3gdbnsOjw9DY-imvroEA=w792-h1406-no?authuser=0){:height="600px"}
 
-*Two horses approached me while I was being really present*  
-![horse approaching](https://lh3.googleusercontent.com/pw/ACtC-3cym8TrzzDFy6d9hKL5cl4wO4SWV6MCg2B4LqMtFC9O-pB8gH0j2s1PuIhWuJRdJzLdEICl-fDAAvpyTCUBu6ktXKFSDJvC76capz45O4j8b7OKGsqAFEZ3HHEJ-24lGr8F7qTBFsn6Kfh__9vHo9tkkw=w792-h1406-no?authuser=0)
+*A mysterious encounter with horses while walking mindfully in the field*  
+![horse approaching](https://lh3.googleusercontent.com/pw/ACtC-3cym8TrzzDFy6d9hKL5cl4wO4SWV6MCg2B4LqMtFC9O-pB8gH0j2s1PuIhWuJRdJzLdEICl-fDAAvpyTCUBu6ktXKFSDJvC76capz45O4j8b7OKGsqAFEZ3HHEJ-24lGr8F7qTBFsn6Kfh__9vHo9tkkw=w792-h1406-no?authuser=0){:height="600px"}
 
 ![touching horse](https://lh3.googleusercontent.com/pw/ACtC-3cqMw31MLsraiBxn9n5J2thrGfxQmW1KjC9GhpxIzgHEJxLDD24IaW8gnkbOK6biTfNKbayTUrrHi_3Q4jaML9BsJwAv2UySjuAb1iCerDdWL35D_tti89UhtnZZ0RXC0GEGzB9GdhWFjgtfVpOh9S4Ag=w2500-h1406-no?authuser=0)
 
