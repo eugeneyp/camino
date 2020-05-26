@@ -1,9 +1,9 @@
 ---
 layout: camino
-title: "Day 26: Rabanal del Camino (Rest Day)"
+title: "Day 27: Rabanal del Camino (Rest Day)"
 walked_distance: 0
-date_camino: May 24, 2019
-day: 26
+date_camino: May 25, 2019
+day: 27
 ---
 
 Another rest day at the Benedictine monastery. 
