@@ -1,6 +1,6 @@
 ---
 layout: camino
-title: "Day 27: El Acebo"
+title: "Day 28: El Acebo"
 walked_distance: 18
 date_camino: May 26, 2019
 day: 28
