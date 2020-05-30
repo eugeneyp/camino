@@ -24,7 +24,7 @@ On these last days of the Camino, I felt softer. Now I knew I would make it to S
 *Touches me to see words left by pilgrims from China. I haven't met any yet on the walk.* 
 ![words from Chinese pilgrims](https://lh3.googleusercontent.com/pw/ACtC-3fPH0uwknnb8H4zp505jH1oBBebscoN3yJo7P9I3RscXWWVEyKSqHYKV8qBDtIFLp6g5diAe64sJHJY8pEdbXa3mc6Iu20Gs-Rb5qKAemYGjfHOf3htWpWuNIJjIPgo9CLUf28jgqNNgic-AoL-tSl0zw=w1840-h1036-no?authuser=0)
 
-*A chill albergue lounge where Lena and I stopped to hang out. There were food, drinks. Everything was donation-based. You can take anything you want.
+*A chill albergue lounge where Lena and I stopped to hang out. There were food, drinks. Everything was donation-based. You can take anything you want.*  
 ![donation-based cafe](https://lh3.googleusercontent.com/pw/ACtC-3cIx4cPln7KEPyQHG8JlogBS-z3spEcZlgudKhwBAdDbNNsCmR4anQp7uIPxZXOBFgIIXNBL93ZkPBe05o5rsAqtgLPJYCyXDy2dQ1dC6N4qOZYKs4sGqW_G46dvVpP8IYJTjCjhy1ETuyyEV58HdUzGA=w1840-h1036-no?authuser=0)
 
 *Villafranca del Bierzo, a town in the valley*  

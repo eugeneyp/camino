@@ -10,7 +10,7 @@ I said goodbye to Uwe near [Ponferrada](https://en.wikipedia.org/wiki/Ponferrada
 
 I continued walking with Franzi, who caught up after a late start from the albergue. We first met back on Day 7, and had crossed paths few times since. Now she felt like a little sister to me. She borrowed and read the Murakami book that I found in Leon, and we had fun discussing it.
 
-That evening, I had dinner with Lena from Australia, who was to become my closest companion on these last days of the Camino. At this tiny cafe, I was having spaghetti, and she a vegetarian spanish omelette. Time slowed into a pause, and we shared a moment of mutual recognition -- into a space of deep remembrance of all that we were.
+That evening, I had dinner with Lena from Australia, who was to become my closest companion on these last days of the Camino. At this tiny cafe, I was having spaghetti, and she a vegetarian spanish omelette. Time slowed into a pause, and we shared a moment of mutual recognition -- into a space of deep remembrance of the being-ness that we are.
 
 *Continuing the descent*  
 ![descent](https://lh3.googleusercontent.com/pw/ACtC-3dXqE5yT9K2C93jOXG02URCqR2du0NDmnOGqdk-3XoRfmqxdMHP4FSVIVZ6iN52-_f0AhlTEBVJgPbUlz_qOC0Evhxh6CUyGvM72913V3Q0E3WkbRnQ_-GmkXn9We95SqvZa5OcnfOlQeLO7gBy758Ndw=w2500-h1406-no?authuser=0)
