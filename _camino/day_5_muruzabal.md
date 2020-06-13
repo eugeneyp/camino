@@ -1,11 +1,10 @@
 ---
-layout: post
+layout: camino
 title: "Day 5: El Perdon - Muruzabal"
 day: 5
 walked_distance: 19.5
+date_camino: May 3, 2019
 ---
-May 3, 2019
-
 I woke up feeling sick. There was a slight fever developing over night. And it was raining and cold outside. I wasn't sure whether to go or to rest for a day. In the end, I wore everything I had to stay warm, put on my rain gear, and made a go for it, leaving late at 9:45am.
 
 As I walked, my legs felt surprisingly strong, and my body was adapting to the weight of the pack.
@@ -36,7 +35,3 @@ Not sure how far I would go when I left in the morning, I ended up walking 19.5 
 ![dinner at albergue](https://lh3.googleusercontent.com/4IlmZ1UF8Q7-AnzGCfqecWeeob0OBNgDzieoyMa5PVSqk7fYrcUQ-vXs71bltSHyGYfnyfvaIXvKpS-C4q55m7dFlqVKGB7Yq4Cf-DNbu1bgjEEooscsoNPE5te8MxhT5HefsLuaolWu9ekALdwVfGaz1-hTDdPZbMv8jTfFYsRM6MAa9EFkn3s6HSmzxqeLxatxZL8RzE6jRdCuGjXu0DhWoLe0Klvj2kXR2SNtMAWEeDhw0fXvNifng2hkThkt-s_f8bs922Pqk0IyF4r_KHOzkVVEqBUd5eGdncCu4elOFDcCEcxZNTThA6JnqgX6Dk_4Yk6C4rr3N8OJ-0St3K2dPo06X9dxkzjRbutO7CALWseSWCGwgF3m7uJAALG9aqxKfFWqc-Sfgr3xPsRr4w13WrbwJEyb0YTGFbXvptU0ZYq9u99r93loOo1s8Wrfxek7V_w9bChDJIDp6vqEdLxBlPRh0D3-C-nySbr1jVncxSJffPnJCWPt1-QiaLFPCL3DQc4pP8h9UgE2cGtmLIdC4xCmMirACq4wBxR3vnrIh49K6NCfldQpMYHf3CrwzrI4Bwc73wMH-7qXuEb-2L8qEEoqOxT3ZZm8WIKeCe4ZBNHiCgXWO0jItkW3kUEB2GxzMQnqDNa0Ymcfdjg5wqW3qPz5uOwkdMUKOAaV4hpSfHwH7uvpo0JarENuZkA_Aa1KTl1Syo5GdFueD_IO5g4p1A2lN-JILO8wXt9IGUQ5F78gl2Y9uns=w1840-h1036-no)
 
 [**See more photos from that day**](https://photos.app.goo.gl/f4Sse8TCBEHkJjmi6)
-
----
-
-[Back to the main Camino page]({% link camino.md %})

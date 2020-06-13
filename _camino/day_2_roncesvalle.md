@@ -1,11 +1,10 @@
 ---
-layout: post
+layout: camino
 title: "Day 2 Pyrenes - Roncesvalle"
 day: 2
 walked_distance: 18
+date_camino: April 30, 2019
 ---
-April 30, 2019
-
 I crossed up and over the Pyrenes from France into Spain. The sky was crispy blue, the hills were greener than green. 
 
 > Up, over and down under -- a beautiful and gentle invitation into the long pilgrimage
@@ -32,7 +31,3 @@ From my journal:
 
 *Evening mass with pilgrim's blessing*  
 ![evening mass with pilgrim's blessing](https://lh3.googleusercontent.com/k_89v8JVsFQHphU9cIVPbAtubLOij_4lQeKdRoeT6uoVtLn1wLE2WtenW1W_R-thim3tlMnJWcaLiyqaelNEy326ksji0RedUWGc_H8moqcl5D_wslJDzz54Su8UzVCkpVNGX0mG3ilMVCSgSMdHdyiZG-JgLK2nQB9uOdg8y1oB2jyNtzcGlw8gr07jDhyVoYO9nK0EHFUzVqLzw8N2KOL6IcqtKvJK52SY99d7eCbcfXj4XmTowKSQgp8Ldxgg04SMmunhdCbcGVDSJXwixofQ8LizCf3jd59hOgr82cpX-6LdIfLokGAkSnl-nTP08r8pRMTAiHfdx_jq_Oc_h_2NT8MkIRY8kx-Lx4oph3dNTSfRud75tELboN-eFeLZFtyQ0FkQ6IA-a6rkPKUYwXj08rKi6xZa8OBC9Tn0isCXNg-KXZXMPPZZoBumPgYLt_XoixS4wiib2ouCKqgWcKEFKoOsvpaENPvW_iEHfBvqprly093hEH77oo9-z03-EJdJInjFUjOU4Z2HGMtNJPLJ7wigbpgHuwoXv4sqBpvEc63wrO1CHJ-_tzO5IQeQIsWrCt-AAcLlslQFDtNZs9RJYN5SZmjJGwNWtSK6O3m5kWJF1fNpJdYlWmaFETYVkEbewAtH8D-03BS0Rjxvx7FEwJ_TqpyOfrcSeK1xxWLnnzb8P8wGSrkBuw3oSY65dB6O1-eWR_aZe8Avss2qXV1evbeujR3fzoyIeDLCWglxm7cMw5-0h88=w1840-h1036-no)
-
----
-
-[Back to the main Camino page]({% link camino.md %})

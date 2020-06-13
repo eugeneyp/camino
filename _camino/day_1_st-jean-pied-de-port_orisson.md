@@ -1,11 +1,10 @@
 ---
-layout: post
+layout: camino
 title: "Day 1: St Jean Pied de Port - Orisson"
 day: 1
 walked_distance: 7.7
+date_camino: April 29, 2019
 ---
-April 29, 2019
-
 Excitement for the first day of walking! I took an early morning train from Bayonne to St Jean Pied-de-Port, the official starting place for the French Way of the Camino. Off the train, along with the other pilgrims, I walked into town to register at the  Pilgrims office. Even though I slept poorly the night before, I walked with a gusto. The day is bright. It is almost 800km to Santiago de Compostela, and this is the start.
 
 At the pilgrim's office, I collected my pilgrim's passport, where I will be collecting stamps along the way as a proof of my journey. I also picked up a shell, the most important signifier for a pilgrim. And I bought a walking stick, honestly not because I thought I really needed it, but because it makes me more like a pilgrim.

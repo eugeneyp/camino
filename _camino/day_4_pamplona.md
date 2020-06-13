@@ -1,11 +1,10 @@
 ---
-layout: post
+layout: camino
 title: "Day 4: Pamplona"
 day: 4
 walked_distance: 20.3
+date_camino: May 2, 2019
 ---
-May 2, 2019
-
 The body surprised me. Though I felt dead tired the day before, I felt fresh and with renewed energy for the new day.
 
 A taxis from the hotel dropped us back to Zubiri, where we continued the pilgrimage to Pamplona, one of the largest cities on the Camino. Along the way, I met Monica and Victor, a couple from Oxford, and Jorge and Waika, a couple from Puerto Rico. 
@@ -51,7 +50,3 @@ In the evening in Pamplona, I walked by the bullfight stadium that was made famo
 ![entering Pamplona](https://lh3.googleusercontent.com/hvjgykBN22NqWsJwjcC0HgJoQT0_NFCIp2aN_lYhyx6sq9W6Taa0uYxcdxXIU79Dc_ULEsa_jQ4D0I2stnAnI263X3SWKWFTowP4Nugv0X_b1doOhYNO0rhCX-vb0-hkpQUP2E-4sr1FCFGG0XW6yps7Ktec4fv5TKQqM8zOhfHELpD84tK39oIfZsuKS0PbGHYzkSr9wdu-I7TDGb0QnzfreVjKAxcOplXMw8LXg3mtTVSYO9OI5eugF0xTzwO4pXCzHVj4rSC5qEMQD6b_AORP9nFlARYvb3t3jOtvzN3KK04fyWn8RQ2BUNEr9anM6meFJUBkkMpcHRxoln5z8Rj4HYYlce-eKPOUw-Kc998W5DG1ko41b1YXOXAysJu1Uxp76zPvtXxwSTsY_NONaSRNSU9IJ-sC892Yzp132RYi-vAuAUKFKsYkS5HaIQorYEI-mFgC1PlwHW_v63MS78-NpxyK2pf92_f1w9RHNFWcgiCCjl4LaPs-AOX5Zr48pbRqyt44bBcSoW2SKRGsxVQx1kGyeotpFNWGIlmZG39ftgpWUU-QHnfrWTJp7BUfK7u6xW_d_6MKmmgj3ut9lL_CdZegQqKWA0I3eu6hl2sJ1VXh694fYlmXMdLR2ITj2CnkQ26DeXVJfV7V8RremV0kNk-AJ7gnjpCM3iNkD6cq-ueh73zDDjBA3hbLOfFPthWrDxn-2oe_Vyo3zVyiU8Dip4DVLltQrBAQfE1NXB4RTeRUGUFgF-g=w1840-h1380-no) 
 
 [**See more photos from that day**](https://photos.app.goo.gl/RTCDkaQEU71DsHFr9)
-
----
-
-[Back to the main Camino page]({% link camino.md %})

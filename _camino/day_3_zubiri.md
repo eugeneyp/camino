@@ -1,11 +1,10 @@
 ---
-layout: post
+layout: camino
 title: "Day 3: Zubiri"
 day: 3
 walked_distance: 21.5
+date_camino: May 1, 2019
 ---
-May 1, 2019
-
 A tough day. Woken up at 6am by overhead speakers at the albergue playing Gregorian chants. I carried my pack and walked 21.5km. It was hot. I was tired and sore, and at one point, wanted to give up. While I was resting on the side, Sasha and Benno, a couple from Australia, whom bunked near me the night before, walked by and called my name. Walking and talking with Sasha picked up my energy and carried me to my destination, Zubiri.
 
 Along the way, I saw Jacki, Patti, and John; also Peter, who I would see again at the very end. I stopped by at a cafe and refueled with bread and a boiled egg. I also stopped by a refreshment trailer. Beside it was a bin with a sign that said if you drop in your underwear, it'll bring your luck in finding your next husband or wife on the Camino. I have heard of stories of people finding their love on the Camino. It was not in the foreground of my mind. Having just came off a significant international relationship, I was not in a state of mind where I was ready for another. Plus, I wanted the Camino to be about my relationship with God. But there were certainly opportunities for flirtations along the Camino. People were so open and friendly.
@@ -41,7 +40,3 @@ By the time I reached Zubiri, all the beds have been booked. The next town is an
 ![camino pillar](https://lh3.googleusercontent.com/he28HPG8UMDH3CconL_LCuhmnQ5r1khi6GDFl2KA-rmS8NseoEheRuRC6JitbEcSFlS8Jombhl_3usbYc8nsYmYE9q-nlCdFG3MVpuL8p4Bx4e35_A8HdKbvOmFTUDoHGKNODqVZsYkAqIqHoAziglAKup4Gg9VG7SLGlwK5XJ0wUW-2eEN2G81MJ_E5hBwy4R18tJdEyxlFijtY0x4pORCl042jla5YG9FxqceI3rWCOFHG8r2wQkX9zrPaF15R-y2wz070OcmvXHXYaRfw6eMObG4O4VppACnZ-fSZMpgXv-_ygcmnCnWgkSv23eIrmXmvWCF3QsN0kFUcLl85mm7zlo55qCQxCJv_jEx9cVBKeWpTbCQ8IBMKEL_7NMoQTFXqzmhlRFQzHGcgjd42F_oZ6yq18gPlIBDg_OBHxuuRL0PXQshV62FpBjEQDe4bWkyltsx4YvEFHcVbgCX1aw-O9Fl9c9YbKTVH8u2sFr804Ehn9hts5P_HZ-Uw5NtOFccwr9T-UomT1EL93383vIshUdHtNWz5Ea7ZyOwn-Gv73gTLxOlE57CLUHb1bcLfM4Bx14OSiXmqeKPabOKQHVx-AG4BSBCWzk5A9fNCxiI_-DE7FfyPcHcAqpMb580eTl3zrc3q4DXa6n3gO8Fv_zG6UqDBBtT7KTuwNA00EOq0zZxrWVT5Yi2oUnnfSTvG5pZBM0tDC_0N5ApTp3t0xpc2IE8SoFtKnxj6rdJrL_WYddYNfhRVxNQ=w792-h1406-no)
 
 [See more photos from that day](https://photos.app.goo.gl/uvhMg9kAWnsNpSXL6)
-
----
-
-[Back to the main Camino page]({% link camino.md %})
