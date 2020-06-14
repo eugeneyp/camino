@@ -60,11 +60,17 @@ When we were 1 hour away from arrival, our walk became more determined, and we b
 *St. Francis*  
 ![st. francis](https://lh3.googleusercontent.com/pw/ACtC-3eU4nolEg-E1B8TIaPVUtO_fYltdec-Pu5jBacywGeYszlB22ocpnCOp_l6umGxHaGs1_4qjRn7vTrX3OuE11R5lQKZqrzNINNQ2JtRxVOV4m-WbWBRfhI1dKYNFt_HxV_ayWCa1EFmshLLZPua7ykR2w=w792-h1406-no?authuser=0){:height="600px"}
 
-*A Pilgrim's prayer from Franciscans. It is said that St. Francis walked the Camino himself. *  
+*A Pilgrim's prayer from Franciscans. It is said that St. Francis walked the Camino himself. [Full text]({% link _pilgrimage/franciscan_pilgrim_prayer.md %})*  
 ![st. franciscan pilgrim's prayer](https://lh3.googleusercontent.com/pw/ACtC-3fATMe_HOg36yYK2daqsNDCHNlmWE9D4NVu552upbBkrsRJ-zVCKk4Mt0T612cVpFHKJayY9CrabgQb9LVOycpxyw0ZiDd2r3vYQBIeF5PzxR9Yun_KfGnP8jSIe45ekpEucpCC4Mpjp1wZRhLuwMprag=w792-h1406-no?authuser=0){:height="600px"}
 
 *St. Benedict*  
 ![st. benedict](https://lh3.googleusercontent.com/pw/ACtC-3fDDV3nQUpdcmkH-5FqZPKl2wp3xmN4jmUcVNi9_NSbbhgADEPNCxfuluiwi57EsQ6x2HwKym8C6vreblo-9CScBHPVExcInxDkSKAXIOjGvg1WE6NQDpBG3CuWRjZy3JwTIYIelu6sAmrBWluEwxut7g=w792-h1406-no?authuser=0){:height="600px"}
+
+*Lena, and a moment where I felt completely content*  
+![lena](https://lh3.googleusercontent.com/pw/ACtC-3c03CBNSW7rox4I88LNHCh-GgnEd985Oit-4jcUMPkDGRbVwHZa1i1o-125LsS8ZLgpdg-j_dFnNykgiKjoDWoqy3gfx5AZ6dEuU2vwAkR5KqKxD2eWooxUnf6O5x-nvgmTKhSazomO9S8pDHKYtvVhuw=w792-h1406-no?authuser=0){:height="600px"}
+
+*Dinner at albergue*  
+![dinner at albergue](https://lh3.googleusercontent.com/pw/ACtC-3fCYTdmEE6cXb0mGMOyjvyNqxbpvyjfA8e_Q6s6q_0lBmHBdvyRRT6h8rQE8XQay4XJ_7SpIGMdDmJ5BADiehI59aT0SQqb1xTQBi_0Hj1wfW7WNwW4NZAWYjtuEVmInaA4_TSSZSlkHOQ4AwqGSrVrSQ=w2500-h1406-no?authuser=0)
 
 [**See all photos from that day**](https://photos.app.goo.gl/9h2KCtxQXhrDZRCA6)
 
