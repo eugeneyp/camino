@@ -29,7 +29,7 @@ When we were 1 hour away from arrival, our walk became more determined, and we b
 ![morning](https://lh3.googleusercontent.com/pw/ACtC-3f_Aek400BfXIA_oeCEuNManW-Axhk_GokTvxCgmqYf0gykImZJeruZ87KIShCXVrD8pjB0YXALzx8jCq6A9t0PwVZVql37Ya8itRYqTU3LtGDOZEu_86Q5-vjPgIRyZxF3WMsr-FlLyBYMu1cqI3NNHw=w2500-h1406-no?authuser=0)
 
 *Walk through the forest. Then Lena stopping by to look at an old tree.*  
-![forest](https://lh3.googleusercontent.com/pw/ACtC-3f_Aek400BfXIA_oeCEuNManW-Axhk_GokTvxCgmqYf0gykImZJeruZ87KIShCXVrD8pjB0YXALzx8jCq6A9t0PwVZVql37Ya8itRYqTU3LtGDOZEu_86Q5-vjPgIRyZxF3WMsr-FlLyBYMu1cqI3NNHw=w2500-h1406-no?authuser=0){:height="600px"}
+![forest](https://lh3.googleusercontent.com/pw/ACtC-3fMquLF4IBd8kowz0KNbIOG98Apmgg8F9Zp2wukutKKnaPa9DcBfnOI2WKULrTyOX7uYQKX7yzIzHWomYisyz4vGxfJZsY1hB08MfwgfyH88HAIbatYLkDQU_UDUjS9H3cpzHKRv_gx_7MEYrbv4u53lQ=w792-h1406-no?authuser=0){:height="600px"}
 
 ![lena looking at an old tree](https://lh3.googleusercontent.com/pw/ACtC-3eavPZUE8IQ5_cbY4lmypwXRW37KMotUzCTtVtSdkyUYEweoSfGHLhMAL-08hY35AoyE8U-0l4rbpTQq3APQFIk6TvQBeAxnJQRA2IdOvR8s1i5ZFlP4nZjN5hrz1Uhzh8hRItcyUKidBJjz0yE1aW0SQ=w792-h1406-no?authuser=0){:height="600px"}
 
