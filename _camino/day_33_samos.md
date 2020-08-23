@@ -62,9 +62,9 @@ That evening, my friend Gary flew in from Canada and reached Sarria. He was now 
 
 ![chapel](https://lh3.googleusercontent.com/pw/ACtC-3e-e7FhMbpzrFVMRhFjmrPaeW8BMLeOLwg6j3uWwamFrgEu1QWEN6G3dkO18tIi7sVy4Vy-sO0gFnMI9ep2YLVnwC15_Ow81UjOoNODFeMrE68_-Ct_ijtFnk_OfkUWEWaYIMTG92bG0lyAE7DVaXxkJQ=w2500-h1406-no?authuser=0)
 
-![chapel ceiling](https://lh3.googleusercontent.com/pw/ACtC-3foNdptZRcrGdHLwQ9ayB1xKthv1WX4YxEMkcFklaDJ8WLflsM-gwj4C8vq_-WU0iyK-RxpucHJ0H2HIqbycDccKvv7-MGxTy5N2HHwO-HZwgQqgkle_HRl-r3NdqAo1VPe4HsUYZ-_G23eUTpSJn2rSw=w792-h1406-no?authuser=0)
+![chapel ceiling](https://lh3.googleusercontent.com/pw/ACtC-3foNdptZRcrGdHLwQ9ayB1xKthv1WX4YxEMkcFklaDJ8WLflsM-gwj4C8vq_-WU0iyK-RxpucHJ0H2HIqbycDccKvv7-MGxTy5N2HHwO-HZwgQqgkle_HRl-r3NdqAo1VPe4HsUYZ-_G23eUTpSJn2rSw=w792-h1406-no?authuser=0){:height="600px"}
 
-![altar](https://lh3.googleusercontent.com/pw/ACtC-3fnxqJNwlQ4R6ApoS2uOiVTxdod5FA1wZVASO-Ea2Hai4eLd_JzjL6gl2R0ocX5H17g7-VFkiqt4PJAc8HIfh4o8nCQd4py-YY8hY-e6szAmVfjnAvswTIoH8VYc_5AvpHWaoMO70ObNYKrChMKAH2ckg=w792-h1406-no?authuser=0)
+![altar](https://lh3.googleusercontent.com/pw/ACtC-3fnxqJNwlQ4R6ApoS2uOiVTxdod5FA1wZVASO-Ea2Hai4eLd_JzjL6gl2R0ocX5H17g7-VFkiqt4PJAc8HIfh4o8nCQd4py-YY8hY-e6szAmVfjnAvswTIoH8VYc_5AvpHWaoMO70ObNYKrChMKAH2ckg=w792-h1406-no?authuser=0){:height="600px"}
 
 ![church](https://lh3.googleusercontent.com/pw/ACtC-3e8UCV6NzdavxXltLVQTZW5waoNze5dsOAr5VWw5YCm-D5rCBnxSh4w3V5svMOA74MptH2hdOgODaIufAdMgelc_gfZS51-wRcxurxdRrwtAK0wPghbjmdyKc9hzFpm1T4srlUP0_fHTVhl3DkmPOZKnA=w2500-h1406-no?authuser=0)
 
