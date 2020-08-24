@@ -8,9 +8,7 @@ I do not see the road ahead of me.
 I cannot know for certain where it will end.  
 Nor do I really know myself,  
 and the fact that I think I am following your will  
-does not mean that I a
-
-m actually doing so.  
+does not mean that I am actually doing so.  
 But I believe that the desire to please you  
 does in fact please you.  
 And I hope I have that desire in all that I am doing.  
